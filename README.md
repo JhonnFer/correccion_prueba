@@ -1,0 +1,5 @@
+![captura de salida ](![Capturapoo](https://github.com/user-attachments/assets/eedaa0a0-f4e5-4bde-81ba-9c1a4b9427c6)
+)
+![captura de salida ](![![Capturapoo1](https://github.com/user-attachments/assets/9ef5e7ea-9bdc-4bd3-97d2-1bc0a3b489cf)
+)
+)
